@@ -6,3 +6,5 @@ Ivan López Martínez
 *Alejandro Arturo Palma Parra*
 
 *Jhofre Chavez Pastor*
+
+*Rolando Rodriguez Sanchez*
