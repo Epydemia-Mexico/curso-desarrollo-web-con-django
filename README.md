@@ -7,7 +7,8 @@ Ivan López Martínez
 
 *Jhofre Chavez Pastor*
 
+*Rolando Rodriguez Sanchez*
+
 *Ana Paola Lagunas Parra*
 
 *Omar Vicente Santiago Anzures*
-
