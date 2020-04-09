@@ -7,6 +7,8 @@ Ivan López Martínez
 
 *Jhofre Chavez Pastor*
 
+*Juan Camilo Camargo*
+
 *Rolando Rodriguez Sanchez*
 
 *Ana Paola Lagunas Parra*
